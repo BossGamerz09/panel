@@ -1,5 +1,5 @@
 
-![Heliactyl](https://cdn.discordapp.com/attachments/881207010417315861/949706607497977976/heliactyl.png)
+![Craftyl](https://cdn.discordapp.com/attachments/881207010417315861/949706607497977976/heliactyl.png)
 
 <hr>
 
